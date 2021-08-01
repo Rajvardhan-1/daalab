@@ -1,2 +1,2 @@
 # daalab
-hare i will submit all the assignment
+ assignment will be submited hare
